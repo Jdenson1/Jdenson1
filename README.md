@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Jdenson1
-- 👀 I’m interested in being 
+- 👀 I’m interested in being a helpful and a succeseful person!
 - 🌱 I’m currently learning in high school
 - 💞️ I’m looking to collaborate on anything new
 - 📫 How to reach me is my email which is josie.denson@icloud.com
